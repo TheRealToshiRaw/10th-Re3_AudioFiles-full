@@ -1,5 +1,5 @@
 # 10th-Re3_AudioFiles-full
-The full audio files no bugged/blanked/sectioned and uncompressed with all radio in HQ.
+The full audio files no bugged/blanked/sectioned + full uncompressed with all radio in HQ.
 
 (welcome back to HQ removed/censored/exclusive tracks, commercials, skits, ambience, etc..)  
 
